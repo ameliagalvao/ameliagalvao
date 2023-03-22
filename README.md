@@ -1,5 +1,5 @@
 # Hi there! :black_cat:
-## I'm Ana Amélia M. Galvão, a Software Engineer student (2022-2026)
+## I'm Ana Amélia M. Galvão, a Software Engineer student (2022-2025)
 <a href="https://github.com/ameliagalvao">
   
 ---
